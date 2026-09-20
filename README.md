@@ -84,14 +84,6 @@ Learning by actually shipping something.
 
 </div>
 
-<br>
-
-**Currently Learning**
-
-→ [isi nanti kalau ada]
-
-<br>
-
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 <br>
